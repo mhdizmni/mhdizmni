@@ -1,2 +1,2 @@
 
-- 📫 hi@mahdizamani.ir
+- 📫 hi@mitism.com
